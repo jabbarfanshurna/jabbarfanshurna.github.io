@@ -1,1 +1,1 @@
-# jabbarfanshurna-jabbarfanshurna.github.io
+# jabbarfanshurna.github.io
